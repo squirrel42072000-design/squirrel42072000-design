@@ -58,3 +58,12 @@ Project Management · Program Management · Digital Project Management · AI-Ass
 - LinkedIn: https://www.linkedin.com/in/daniel-lippke
 - Location: Pittsburgh, PA area (Vandergrift, PA)
 - Open to: Project Manager, Project Coordinator, Program Management, PMO, and Operations roles — remote US and Pittsburgh-area
+
+## Find Me
+
+Project Manager & Project Coordinator — U.S. Army veteran. I'm a problem solver, and I work as my team's support system: keeping projects and details organized so the people around me can succeed.
+
+- **About.me:** https://about.me/daniellippke
+- **Professional website:** https://muse.ai/s/professional-website-xmxo5xwnqxktxxxl4
+- **LinkedIn:** https://www.linkedin.com/in/daniel-lippke
+- **Contra:** https://contra.com/daniel_lippke_a0fhuaql
